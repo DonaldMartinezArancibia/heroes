@@ -4,4 +4,4 @@
 2. Crear la liga de la justicia
 3. Buscar nuevos miembros
 4. Acabar con Deathstroke, Gatubela y Joker
-5. Conseguir proviciones para el equipo
+5. Pedir ayuda a Flash
